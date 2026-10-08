@@ -1,2 +1,2 @@
 # My-intro-
-Zoya Fathima/HKBK/Student | AI &amp; Technology 🤖Curious mind • Creative soul 🌙Learning, experimenting &amp; building ✨
+Zoya/HKBK/Student | A little curious. A little creative. Learning tech_one :why?" at a time.
